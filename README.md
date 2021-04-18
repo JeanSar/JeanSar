@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on professional digital projects and to participate in Game Jams. 
 
-- 📫 How to reach me : 
+- 📫 How to reach me : jeansar504@gmail.com
 
 
 
